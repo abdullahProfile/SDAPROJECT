@@ -180,7 +180,7 @@ The need for this system arises from the challenges associated with traditional 
  <a href="https://drive.google.com/file/d/1J5-38Puv9zgUz0pMZM_dd6Kw14vlgo8M/view?usp=sharing">Click</a>
 
  <h2>Video Recording by Aizaz ullah</h2>
- <a href="https://drive.google.com/file/d/1qLpomN2WrPmR3ak__RhEWFq4V9IcvTlE/view?usp=sharing">Click</a>
+ <a href="https://drive.google.com/file/d/1bQy-0dyg0H9TyhSZvMVicRD8B0fi-LbF/view?usp=drive_link">Click</a>
  
  <h2>Video Recording by ZARAK</h2>
  https://drive.google.com/file/d/1TNdIn6kJ_gIHgWHpRuNIpSpL4CocQ6HV/view?usp=drive_link

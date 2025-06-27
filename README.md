@@ -182,8 +182,8 @@ The need for this system arises from the challenges associated with traditional 
  <h2>Video Recording by Aizaz ullah</h2>
  <a href="https://drive.google.com/file/d/1bQy-0dyg0H9TyhSZvMVicRD8B0fi-LbF/view?usp=drive_link">Click</a>
  
- <h2>Video Recording by ZARAK</h2>
- https://drive.google.com/file/d/1TNdIn6kJ_gIHgWHpRuNIpSpL4CocQ6HV/view?usp=drive_link
+<h2> Video Recording by SYED MUSTAFA</h2>
+<a href = "https://drive.google.com/file/d/1wLIz6IDuEGsJslH9tMfhQI1PYKVqOr8K/view?usp=drive_link">Click</a>
 <h2> Video Recording by RANA ASAD UR RAHMAN</h2>
  https://drive.google.com/file/d/138qsgWtaw4B5RKu0chJ3OQKQXc_EC_Z0/view
 <h2> Video Recording by ABDUL HASEEB</h2>

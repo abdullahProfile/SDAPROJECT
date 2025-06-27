@@ -187,4 +187,4 @@ The need for this system arises from the challenges associated with traditional 
 <h2> Video Recording by RANA ASAD UR RAHMAN</h2>
  https://drive.google.com/file/d/138qsgWtaw4B5RKu0chJ3OQKQXc_EC_Z0/view
 <h2> Video Recording by ABDUL HASEEB</h2>
-     <a href="https://drive.google.com/file/d/1Dn2ycswxo-R_EbKXikfwfAMX1Y2mI9Hg/view?usp=sharing&t=2">Visit </a>
+     https://drive.google.com/file/d/1xsnH4cHnZajrGDFB1asV6O7HigYUvy4u/view?usp=sharing 
